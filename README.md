@@ -1,1 +1,2 @@
-# flexible-flue-liner
+At [Flexible Flue Liners](https://flexibleflueliners.com/) we supply a full range of installation and flue parts for wood burning stoves. Flexible flue liner is manufactured at our site in Braintree, Essex where we also stock a full range of flue supplies. Flexible flue liner is used to line existing chimney’s when a log burner is being installed in a fireplace. Chimney flue liner is a great and inexpensive solution to solve updraught issues, to protect the body of your house from tar build up and to ensure no smoke escapes. Simply drop the liner down the chimney and connect at each end for a fully sealed effective flue system. Flexible flue liner can only be used in existing chimneys and cannot pass through walls or be used externally.
+
